@@ -1,3 +1,3 @@
-# FirstReposityCuozzo_ITS_01
+# FirstRepositoryCuozzo_ITS_01
 Repository creata per testare
 gfhbubffyfhsbuhsht
